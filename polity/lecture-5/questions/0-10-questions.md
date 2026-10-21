@@ -9,6 +9,23 @@ Try answering before checking the key.
 5. Why should the 1951–52 election not be described as a formal referendum on the Constitution?
 6. Write a 150-word answer: “The Constituent Assembly was not fully representative, yet its deliberative process gave the Constitution broader legitimacy.” Discuss.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Answer Key
 
 1. It was not elected directly by all adult Indians, and several social groups lacked direct physical representation.
