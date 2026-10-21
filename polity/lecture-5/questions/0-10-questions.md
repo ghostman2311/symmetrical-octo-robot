@@ -10,20 +10,20 @@ Try answering before checking the key.
 6. Write a 150-word answer: “The Constituent Assembly was not fully representative, yet its deliberative process gave the Constitution broader legitimacy.” Discuss.
 
 
+--------------------------------
+
+
+
+--------------------------------
+
+
+--------------------------------
 
 
 
 
 
-
-
-
-
-
-
-
-
-
+--------------------------------
 
 
 ## Answer Key
