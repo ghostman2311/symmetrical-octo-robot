@@ -6,7 +6,14 @@
 4. Which Article of the Indian Constitution concerns cow protection?
 5. From which country was the idea of Directive Principles of State Policy borrowed?
 6. Give two arguments against describing the Constitution as a carbon copy of foreign constitutions.
-
+----
+----
+----
+----
+----
+----
+----
+----
 ## Answer Key
 
 1. The criticism is that many provisions were taken from foreign constitutions or earlier colonial legislation.
