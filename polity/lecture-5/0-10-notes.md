@@ -52,8 +52,7 @@ Use this point **carefully** in a Mains answer:
 - The election gave the Constitution-making leadership a degree of subsequent electoral legitimacy.
 - However, it was **not a formal referendum on the Constitution**. Voters chose among parties and candidates for multiple reasons, so the result cannot be treated as a direct vote on the Constitution alone.
 
-** 8 Nov 26
-
+** 8 Nov 26 **
 -----------------------------
 Let me explain this in very simple language.
 
@@ -130,7 +129,7 @@ You can write:
 ### Remember this one line
 
 The 1952 election was an indirect expression of public confidence in the constitutional leadership, not a direct vote on the Constitution itself.
------------------------------
+----------------------------- **8 Nov end**
 
 ## 6. Balanced Mains answer framework
 
