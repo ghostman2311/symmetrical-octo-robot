@@ -7,6 +7,19 @@
 5. Who is associated with the phrase “lawyer's paradise”?
 6. State four reasons why the Indian Constitution was originally so detailed.
 
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+---------------------
+
 ### Answer Key
 
 1. Selecting and modifying ideas from other constitutions to fit Indian conditions rather than copying them blindly.
